@@ -1,0 +1,1 @@
+Amaliy dasturlar paketi
